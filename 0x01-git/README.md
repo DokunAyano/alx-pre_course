@@ -1,1 +1,1 @@
-my God is Great
+I have a great God
